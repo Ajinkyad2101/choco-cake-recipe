@@ -1,0 +1,2 @@
+to start with making the cake first mix flour with milk and make a mixture out of it and then put chocolate chips (melted) chocolate powder , plain sugar , baking soda and mix it and then let it settle for 20 minutes and then pour 2 spoons of curd and mix it . greece the pot(utensil) with butter or placie butter paper . and pour the mixture in the pot then keep it in oven 30 min . tadaaa!!!!! 
+your cake is ready.
